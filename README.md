@@ -1,4 +1,4 @@
-Amogus furtnat 2022
+I shat my pants.
 
 <!---
 BertocchiJakub/BertocchiJakub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
